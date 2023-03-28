@@ -1,0 +1,1 @@
+Repositorio para subir apuntes de diferentes temas de IT y tenerlos a mano
